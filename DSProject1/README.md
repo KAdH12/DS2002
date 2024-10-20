@@ -1,1 +1,1 @@
-Project Partner: Kendle Schooler 
+Project Partners: Adair Hancock and Kendle Schooler 
